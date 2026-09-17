@@ -1,4 +1,3 @@
-Here is a fully expanded, highly formal version structured like a top-tier management consulting (Bain/McKinsey) case study. I have removed all emojis and adopted an analytical, executive-level tone that emphasizes business value, strategic architecture, and organizational alignment.
 
 Enterprise Omnichannel Strategy and Digital Transformation for a Tier-One Commercial Bank
 Executive Summary
